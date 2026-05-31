@@ -1,4 +1,4 @@
-## Hi there 👋
+## DaRkwMan2134 | Не самый умный, не самый опытный, но программист 💜
 
 <!--
 **DaRkwMaN2134/DaRkwMaN2134** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
